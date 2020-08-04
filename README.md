@@ -1,2 +1,0 @@
-# phunumoi.github.io
-phunumoi
